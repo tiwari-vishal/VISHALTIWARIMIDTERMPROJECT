@@ -1,1 +1,0 @@
-# Rajkumar-b8-mid-term-exam
